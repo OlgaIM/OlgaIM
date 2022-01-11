@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @OlgaIM
-- 👀 I’m interested in languages, recruiting and IT
+- 👀 I’m interested in languages and IT 
 - 🌱 I’m currently learning Italian and German languages
 - 📫 How to reach me: email: ol2312molgach@gmail.com skype: live:1775c15a307e1219
